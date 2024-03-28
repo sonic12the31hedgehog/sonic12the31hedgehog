@@ -1,9 +1,7 @@
-yo
-he/him
-im from the uk
+yo! he him, im from the uk
 
 
-heres a list of things i like bc why not
+heres a list of things i like bc why not:
 sonic the hedgehog
 spongebob squarepants
 gorillaz 
